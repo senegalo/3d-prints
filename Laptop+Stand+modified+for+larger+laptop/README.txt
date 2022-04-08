@@ -1,0 +1,1 @@
+Laptop Stand modified for larger laptop by DanegerousT on Thingiverse: https://www.thingiverse.com/thing:4649608
